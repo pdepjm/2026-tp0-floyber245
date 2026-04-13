@@ -4,8 +4,9 @@ Hola, me llamo Felix Loyber (Legajo 234.002-1), y acá unas cosas que me gustan 
 
 - Ir al gimnasio
 - La ropa
-- Fútbol (hincha de Boca)
+- El fútbol (hincha de Boca)
 - Tocar la guitarra
+- Jugar a la compu
 
 También me gusta mucho escuchar música, metal sobre todo; mis artistas / bandas favoritas son:
 
